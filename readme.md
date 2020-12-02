@@ -1,4 +1,4 @@
-### Hellooo, I'm Kurniawan aka [Niwaaa](https://www.instagram.com/kurneeeawan/) 👋
+### Hellooo, I'm Kurniawan aka [Niwa](https://www.instagram.com/kurneeeawan/) 👋
 
 ## I'm a College Student at Sanata Dharma University
 
